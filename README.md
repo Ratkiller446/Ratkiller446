@@ -1,1 +1,1 @@
-Hey its me rat killer 446 i clean hacked clients so your pc doesnt fucking explode so you can actually play on an anarchy server love from ratkiller446 peace out niggas
+The Story of a Great Programmer begins here... Don't fucking download Trollhack (which i posted it's probably a virus or some shit)
